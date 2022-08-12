@@ -140,4 +140,4 @@
 
 如有其他疑问请戳本人博客：[https://quericy.me/blog/699/](https://quericy.me/blog/699/)
 
-为爱发电：[https://afdian.net/@videodownloader](https://afdian.net/@videodownloader)
+为爱发电：[https://afdian.net/@whiteproxy](https://afdian.net/@whiteproxy)
